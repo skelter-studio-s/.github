@@ -6,3 +6,4 @@ If you are intrested you can join our [discord](https://discord.gg/3gNudcqhhh) s
 
 # contrubution 
 if you want to help join the discord and just ask one of the people with the Management roles and we will help you :) 
+
